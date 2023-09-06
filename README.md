@@ -9,7 +9,7 @@
   Konrad Bronisz
   thank u !☺️
 
-   my work:
+   My work:
 
   1. https://www.evital.com.pl
   2. https://www.polubiczdrowie.pl
